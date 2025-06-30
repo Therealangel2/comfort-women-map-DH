@@ -1,1 +1,0 @@
-# comfort-women-map-DH
